@@ -23,8 +23,10 @@ Me considero una persona que trabaja muy bien en equipo a pesar de mi autosufici
 
 En mis tiempos libres me encanta hacer ejercicio🏋🏽, jugar al futbol con amigos⚽ y los videojuegos no pueden faltar!.🎮
 
-Si te interesa saber algo mas de mi, puedes contactarme a través de:<br/>
-Mail✉️: cataldof21@gmail.com<br/>
+Si te interesa saber algo mas de mi, puedes contactarme a través de:
+
+Mail✉️: cataldof21@gmail.com
+
 O a través de mi perfil de Linkedin y ¡con gusto responderé todas sus dudas!.
   
   
