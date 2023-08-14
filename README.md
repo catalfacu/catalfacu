@@ -19,7 +19,13 @@ Soy un desarrollador web Fullstack con conocimientos en JavaScript, React, Redux
 
 Soy muy apasionado por esta profesión, y nada me gustaria mas en este mundo que poder vivir de este maravilloso trabajo.🥺🥹
 
-Me encantan los equipos de trabajo y me adapto muy bien a los equipos a pesar de mi autosuficiencia, llevándome de cada lugar muchas enseñanzas tanto técnicas como humanas.
+Me considero una persona que trabaja muy bien en equipo a pesar de mi autosuficiencia, gracias a mi comunicación con las demás personas me resulta muy sencillo incorporarme a equipos de trabajo y sacar el mayor provecho y aprendizaje de cada uno de ellos.😁💛
+
+En mis tiempos libres me encanta hacer ejercicio🏋🏽, jugar al futbol con amigos⚽ y los videojuegos no pueden faltar!.🎮
+
+Si te interesa saber algo mas de mi, puedes contactarme a través de:
+Mail✉️: cataldof21@gmail.com
+O a través de mi perfil de Linkedin y ¡con gusto responderé todas sus dudas!.
   
   
 
